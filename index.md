@@ -30,7 +30,7 @@ We may update this Privacy Policy from time to time. We will update the "Last Up
 
 ## 6. Contact Us
 If you have any questions or suggestions about this Privacy Policy, please contact us at:
-**Email:** your-email@example.com
+**Email:** waisoft.hk@gmail.com
 
 ---
 **Effective Date:** September 19, 2026
